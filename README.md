@@ -1,1 +1,1 @@
-# Developed by Shahrukh Qureshi
+# Taught by Shahrukh Qureshi
